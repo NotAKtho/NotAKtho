@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @NotAKtho!
-- 👀 I’m interested in Editing and gaming.
-- 🌱 I’m currently learning in the 8th grade.
-- 📫 Reach me on Snapchat @ak_editz10 and Discord @dingalinga#2241
-- 😄 Pronouns: He and Him
+
